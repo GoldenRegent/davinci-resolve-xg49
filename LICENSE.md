@@ -1,4 +1,4 @@
-# 
+# Secret Adobe Premiere Pro for PC addons is the best Adobe Premiere Pro for PC addons with project-templates and scripts. Safe, reliable, and optimized for maximum performance.
 
 
 
